@@ -1,4 +1,3 @@
-# -Privacy-Policy
 "Новая Сотня" Privacy Policy
 Privacy Policy
 zhivutskiy@gmail.com built the "Новая Сотня" app as a Free app. This SERVICE is provided by zhivutskiy@gmail.com at no cost and is intended for use as is.
